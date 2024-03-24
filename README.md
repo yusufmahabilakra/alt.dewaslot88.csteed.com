@@ -1,1 +1,1 @@
-# alt.dewaslot88.csteed.com
+# amp.dewaslot88.csteed.com
